@@ -1,4 +1,4 @@
-1. Ashraf Shawwa - Ash.Shawwa@icloud.com
+1. Ash Shawwa
 2. My Git hub
 
 
